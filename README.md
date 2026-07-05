@@ -1,4 +1,8 @@
 <p align="center">
+<b><img width="20" alt="hi" src="https://64.media.tumblr.com/tumblr_lm6r99PEFi1qfoi4t.gif" />⠀ ⠀ Ი 𐑼⠀ ⠀ <a href="https://rentry.co/pyoyo">RENTRY</a>⠀ ⠀ <a href="">ATABOOK</a></b>
+</p>
+
+<p align="center">
 
 <img width="350" alt="hi" src="https://file.garden/ZgwdTG-uajjHAH58/blur_edges.png" /> 
 
